@@ -1,2 +1,8 @@
 # git-basic
-Git commit-25
+Git Sangeetha
+
+Kashvika
+
+singing class
+
+sundays
